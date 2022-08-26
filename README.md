@@ -1,0 +1,2 @@
+# google sayfası
+hakkımda bilgiler
